@@ -23,6 +23,7 @@ I aspire to join my dream MCA program in Cyber Security and contribute to making
 ## 📫 Contact Me
 - **GitHub:** [chauhan-harsh630](https://github.com/chauhan-harsh630)
 - **LinkedIn:** [Harsh Chauhan](https://www.linkedin.com/in/harsh-chauhan-a896b737a)
+- **Instagram:** [the_cyberpath](https://www.instagram.com/the_cyberpath/)
 
 Feel free to connect, collaborate, or just say hi!
 
